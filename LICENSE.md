@@ -1,4 +1,4 @@
-#  
+#  advanced Integration for Asana for macOS - offline access and cloud backup offers the most advanced Asana for macOS integration, with offline access and cloud backup. Ideal for
 
 
 
